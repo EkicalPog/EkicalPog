@@ -6,7 +6,7 @@ go watch my [shitty videos on youtube](https://www.youtube.com/@Ekical) instead,
 
 also sumthemun is a big fat pred
 
-Ekical, out.
+## Ekical, out.
 
 <p align="left">
   <img src="https://github.com/EkicalPog/EkicalPog/blob/main/ekicalout.gif?raw=true" width="280">
