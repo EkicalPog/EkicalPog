@@ -2,7 +2,7 @@
 
 I hate all of you, each and every single one.
 
-go watch my shitty videos on youtube instead, more entertaining than looking at nerd ass code.
+go watch my [shitty videos on youtube](https://www.youtube.com/@Ekical) instead, more entertaining than looking at nerd ass code.
 
 also sumthemun is a big fat pred
 
